@@ -7,4 +7,5 @@ Third-year undergraduate student at The Ohio State University studying Biochemis
 Undergraduate Research Assistant | Chemistry Tutor
 
 Website: https://hajtamim.com
+
 LinkedIn: https://www.linkedin.com/in/ahmed-haj-tamim-1046722b9/
